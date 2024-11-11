@@ -77,5 +77,4 @@ By following this action plan, AtliQ Mart can set a strong foundation for succes
 
 ---
 
-
-> **"Supply chain optimization isn’t just about efficiency; it’s about building trust with every delivery."** 📦📉✨
+**"Supply chain optimization isn’t just about efficiency; it’s about building trust with every delivery."** 📦📉✨
